@@ -1,1 +1,1 @@
-# 365-entertainment.github.io
+# 365-Entertainment.github.io
